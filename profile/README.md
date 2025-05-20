@@ -1,1 +1,1 @@
-# Upronix^
+# Upronix
